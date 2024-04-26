@@ -1,5 +1,5 @@
 ---
-title: RODRIGO DOMÍNGUEZ SANZ!!!
+title: RODRIGO DOMÍNGUEZ SANZ
 ---
 # **Biography**
 1. I lived in Madrid until I was 18 years old. Throughout these years, I went to school, did the national and international baccaulearates and found out my love for Mathematics. 
